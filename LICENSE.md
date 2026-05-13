@@ -1,4 +1,4 @@
-#  
+#  Experience anime card clash like never before with anime card clash Scripts smart, the #1 Script. Includes aimbot and silent aim for unbeatable
 
 
 
